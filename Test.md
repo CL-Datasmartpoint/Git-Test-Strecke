@@ -1,3 +1,0 @@
-Anderer Text
-
-Miep miep
